@@ -1,0 +1,1 @@
+# sicakliga-gore-etkinlik-onerme
